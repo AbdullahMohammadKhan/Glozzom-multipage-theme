@@ -1,1 +1,0 @@
-# Glozzom-multipage-theme
